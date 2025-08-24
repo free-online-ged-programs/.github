@@ -2,6 +2,9 @@
 
 Earning your GED® doesn’t have to be overwhelming. With today’s **free online GED programs**, you can prepare from home, at your own pace, and gain the confidence you need to pass. Whether you’re just starting or brushing up on key subjects, online prep gives you everything — lessons, practice tests, study tips, and real exam-style questions.  
 
+<img width="1184" height="181" alt="image" src="https://github.com/user-attachments/assets/d73b81d4-fcf8-4ccc-b998-551cdcf6b521" />
+
+
 Let’s break it all down step by step.  
 
 ---
